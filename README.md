@@ -1,6 +1,6 @@
 # Chrysanthemum Prince
 I code **everywhere**. 17 y.o. Indonesian.   
-All my services and products can be found at [www.mwdhrmaaa.site](https://www.mwdhrmaaa.site).  
+All my services and products can be found at [www.mwdharmaaa.site](https://www.mwdharmaaa.site).  
 
 <!--
 **mwdhrmaaa/mwdhrmaaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
